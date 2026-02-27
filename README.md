@@ -1,0 +1,1 @@
+# AI-powered-smart-waste-management-system
